@@ -4,4 +4,4 @@
 * 18 лет 
 * из Екатеринбурга, живу в Москве
 * *HSE*
-* (https://vk.com/sonyarstrgv)
+* (https://vk.com/sonyarstrgv "Титул")

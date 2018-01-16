@@ -9,6 +9,10 @@
 * (https://vk.com/sonyarstrgv)
 * (https://www.instagram.com/almondsonya/)
 
+
+<a href="https://www.youtube.com/watch?v=6QJ7t6qXTiU" target="_blank"><img src="https://www.youtube.com/watch?v=6QJ7t6qXTiU.jpg" 
+alt="посмотри на смешных котиков здесь" width="240" height="180" border="10" /></a>
+
 * **Мои одногруппники**
 
 | НастяС  | Катя | Света | Юля   |
